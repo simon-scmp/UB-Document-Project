@@ -6,5 +6,5 @@ The Upper Borughton history group recently embarked on translating, photographin
 
 Since the inception of the project there has been quite a lot of interest including news items on local BBC and radio interviews from NZ radio.
 
-It’s hoped that by presenting the information, linking the images of the documents, translations (sometimes from the Latin) and compiling into table format these documents should become an open and free resource for anyone wishing to research their family history in the Melton Mowbray / South Notts area.
+It’s hoped that by presenting the information, linking the images of the documents, translations (sometimes from the Latin) and compiling into table format these documents should become an open and free resource for anyone wishing to research their family history in the Melton Mowbray, Leicestershire / South Notts area.
 
